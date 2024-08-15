@@ -12,4 +12,5 @@ Rafael.picotti@escola.pr.gov.br
 
 @Is_fael
 
-![](https://media1.tenor.com/m/Oc53pHpn960AAAAd/computador-afonsinha.gif)
+![](![computador-afonsinha](https://github.com/user-attachments/assets/d33ea124-735f-42fd-894e-23ae5366b30a)
+
