@@ -12,5 +12,5 @@ Rafael.picotti@escola.pr.gov.br
 
 @Is_fael
 
-![](https://tenor.com/pt-BR/view/acheimagra-stan-twitter-stan-twt-joao-pedro-rindo-joao-pedro-gif-6050180656549903744)
+![](https://tenor.com/pt-BR/view/floptok-joão-pedro-floptok-joão-pedro-bebendo-e-cantando-joão-pedro-bebendo-joão-pedro-gif-14245972796763236869)
 
