@@ -12,5 +12,5 @@ Rafael.picotti@escola.pr.gov.br
 
 @Is_fael
 
-![](https://media1.tenor.com/m/UBH80mkrqMgAAAAC/aghata-nunes-afonsinha.gif)
+![](https://tenor.com/pt-BR/view/acheimagra-stan-twitter-stan-twt-joao-pedro-rindo-joao-pedro-gif-6050180656549903744)
 
